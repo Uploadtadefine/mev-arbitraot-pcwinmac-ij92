@@ -1,4 +1,4 @@
-# 
+# Mejor MEV arbitrage bot plugins para Mac OS | VIP MEV arbitrage bot plugins para PC Windows. Con visualización de datos y manipulación de nonce — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
